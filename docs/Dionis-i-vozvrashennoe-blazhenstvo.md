@@ -1,7 +1,7 @@
 
 
 # Дионис и возвращенное блаженство. 
-![Википедия](https://upload.wikimedia.org/wikipedia/commons/9/96/Baco%2C_por_Caravaggio.jpg ':size=900%')
+![Википедия](https://upload.wikimedia.org/wikipedia/commons/9/96/Baco%2C_por_Caravaggio.jpg ':size=40%')
 
 ?> Вакханалии и оргиастические культы. Ритуальные бесчинства и ритуальное очищение. Священные напитки и священный экстаз. Видения и вИдение. Воскрешение бога и воскрешение людей.
 
